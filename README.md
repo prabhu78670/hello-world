@@ -13,10 +13,10 @@ Today I'm Going To Show You About BRAVE BROWSER
 <marquee width="100%" direction="left" height="100px">
 100%FREE
 </marquee><br>
-<font size="4%" color="green"><head>01.DOODHWALI 1 & 2 - VERY HOT HINDI WEB SERIES :</font></head>
+<font size="4%" color="green"><head>2 - VERY HOT HINDI WEB SERIES :</font></head>
 <br><p> click here to <a href="https://www.google.com" >download</a> the videos.</p>
 <br>
-<head><font size="4%" color="green">02.ARAB GIRLS VIDEOS (10 leanth videos) :</font></head><br>
+<head><font size="4%" color="green">02. VIDEOS (10 leanth videos) :</font></head><br>
 <p>click here to <a href="https://www.google.com > <font color="blue">download</font></a> the videos.</p>
 <br>
 <br>
@@ -26,7 +26,7 @@ Today I'm Going To Show You About BRAVE BROWSER
 <br>
 <br>
 <br>
-<br><center><font color="red" size="5%">18+ ONLY</font></center>
+<br><center><font color="red" size="5%"></font></center>
 <center><p><font size="2%" color="red"><b>EVERY LINK WIL BE RESETED AFTER 3 HOURS</b></font></p>
 </center>
 </body>
